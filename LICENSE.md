@@ -1,4 +1,4 @@
-#  
+#  escape running head Scripts smart is the best escape running head Script, featuring teleport and infinite resources. Safe and powerful for all your
 
 
 
